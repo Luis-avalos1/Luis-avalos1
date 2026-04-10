@@ -8,9 +8,7 @@
   <br>
   🎬 watching: films — check out my <a href="https://letterboxd.com/luckieeee/">letterboxd</a>
   <br>
-  🎥 filming nature in my free time
-  <br>
-  📡 find me on <a href="https://www.tiktok.com/@luisredbulll?_r=1&_t=ZT-95Qg7C7Tedq">tiktok</a>
+  🎥 i film nature — check out my <a href="https://www.tiktok.com/@luisredbulll?_r=1&_t=ZT-95Qg7C7Tedq">tiktok</a>
 </samp>
 
 <details closed>
