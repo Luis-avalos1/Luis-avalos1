@@ -1,6 +1,6 @@
 <samp> hi, i'm luis
   <br>
-  👨‍💻 i code sometimes, i like working on cars, and i like camping
+  👨‍💻 i code sometimes, i like working on cars, i like fixies, and i like camping
   <br>
   🌁 based in the bay area
   <br>
